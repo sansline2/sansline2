@@ -12,6 +12,12 @@
 
 ------
 
+## ```SCRIPT BOT WHATSAPP```
+
+[`Click Here For Tutorial`](https://youtu.be/ACNIrkpZcJE)<br>
+
+----------
+
 ### Connect with me 
 <p align="center">
   <a href="https://instagram.com/Sansline_02"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/> 
