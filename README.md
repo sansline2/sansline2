@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://a.top4top.io/p_2081imvxm1.jpg" />
+  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://e.top4top.io/p_2102t91sf0.jpg" />
 </p>
 ----------
 
