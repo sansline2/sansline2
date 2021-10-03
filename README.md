@@ -14,7 +14,7 @@
 
 ## ```SCRIPT BOT WHATSAPP```
 
-[`Click Here For Tutorial`](https://youtu.be/ACNIrkpZcJE)<br>
+[`Click Here For download`](https://youtu.be/ACNIrkpZcJE)<br>
 
 ----------
 
