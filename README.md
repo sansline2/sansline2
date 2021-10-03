@@ -23,6 +23,10 @@
   <a href="https://instagram.com/Sansline_02"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/> 
   <a href="https://wa.me/6285659073142"><img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /><br>
 
+
+<p align="center">
+  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://a.top4top.io/p_2081imvxm1.jpg" />
+</p>
   
 ------
 
